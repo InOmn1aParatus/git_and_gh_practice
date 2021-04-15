@@ -1,0 +1,1 @@
+My favorite traveling experience took place in 2017, when I planned out a 3-week trip to Nepal to trek around the Annapurna Circuit in the Himalayan Mountains. I spent the majority of my trip with guides in the cities and mountains, and spent several days exploring on my own. I see it as the single most valuable cultural experience of my life.
