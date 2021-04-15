@@ -1,0 +1,1 @@
+My main hobby is taking care of my mental and physical development with a program of strength training combined with a daily reading habit and a consistent meditation practice. A second, related hobby is the acquisition and development of useful skills (e.g. survival skills, fitness-related skills, cooking skills).
